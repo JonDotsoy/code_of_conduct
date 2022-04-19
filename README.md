@@ -22,7 +22,7 @@ No toleramos el acoso bajo ningún tipo, forma ni contexto, directa o indirectam
 
 #### ¿Qué se entiende por acoso?
 
-Abuso físico y/o verbal relacionados al género de una persona, orientación sexual, discapacidades, apariencia física, nivel de conocimiento, raza y/o creencias religiosas. Adicionalmente, creación y/o reproducción de imágenes de contenido sexual en espacios públicos, intimidación física y/o verbal, acecho, interrupciones groseras de charlas y/o contacto físico inapropiado.
+Abuso físico y/o verbal relacionados al género de una persona, orientación sexual, discapacidades, género, apariencia física, nivel de conocimiento, raza y/o creencias religiosas. Adicionalmente, creación y/o reproducción de imágenes de contenido sexual en espacios públicos, intimidación física y/o verbal, acecho, interrupciones groseras de charlas y/o contacto físico inapropiado.
 
 La organización se reserva el derecho de solicitar que cualquier comportamiento relacionado a lo anterior que sea visto durante un evento, sea detenido inmediatamente por quien(es) lo realizan. Adicionalmente, quienes atenten contra este código de conducta, podrán ser expulsados de este y futuros eventos.
 
