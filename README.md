@@ -10,7 +10,7 @@
 
 ### La versión más corta de todas
 
-¿Has visto como luego de algunos eventos, todos terminan hablando de “aquel” o "aquella" que causó un mal rato a uno o más asistentes?. Que no sea de ti de quien hablen :)
+¿Has visto como luego de algunos eventos, todos terminan hablando de “aquella persona” que causó un mal rato a uno o más asistentes?. Que no sea de ti de quien hablen :)
 
 ### La versión no tan corta
 
